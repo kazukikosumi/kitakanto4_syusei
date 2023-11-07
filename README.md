@@ -1,1 +1,1 @@
-# kitakanto4_syusei
+# lesson
